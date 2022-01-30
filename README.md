@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @notSpotz
+- 👀 I’m interested in nothing
+- 🌱 I’m currently learning coding
+- 💞️ I’m looking to collaborate on nothing
+- 📫 How to reach me true discord disc server: https://discord.gg/fPRQAguRSr
